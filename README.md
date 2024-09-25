@@ -1,4 +1,4 @@
-Boas vindas oa meu perfil 🎧🕶
+Boas vindas oa meu perfil 🎧
                              
 Meu nome é João Victor 
 
